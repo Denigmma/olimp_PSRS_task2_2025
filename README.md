@@ -1,1 +1,0 @@
-# olimp_PSRS_task2_2025
